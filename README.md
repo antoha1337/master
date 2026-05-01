@@ -1,2 +1,0 @@
-# master
-prosto tak
